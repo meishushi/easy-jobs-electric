@@ -1,1 +1,1 @@
-# easy-jobs-electric
+# easy jobs electric
